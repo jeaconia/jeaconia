@@ -1,4 +1,4 @@
-# Halo semua! 
+# Hi All! 
 
 Hi! I'm **Jeaconia Tiono**.<br>
 
